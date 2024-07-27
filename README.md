@@ -1,0 +1,2 @@
+# adamos.cz
+Adam Péc
